@@ -1,4 +1,4 @@
-**Título:**  **Imersão Dev_ com Gemini | Alura ** 
+**TTítulo: Imersão Dev_ com Gemini | Alura**
 
 **Descrição:**
 
